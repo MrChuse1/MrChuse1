@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @MrChuse1
 - 👀 I’m interested in Games and Animation.
-- 🌱 I’m currently learning Visual Effects
 - 💞️ I’m looking to collaborate on Animation/Film or Game projects.
 - 📫 How to reach me: @MrChuse on Twitter.
